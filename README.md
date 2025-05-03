@@ -15,11 +15,9 @@
 
 公众号：丛集黑科技
 
-![](https://img.twoice.fun:666/i/2025/03/28/11gongzhonghao-2-2.png)
+
 
 NAS圈大佬：可爱的小Cherry（二冰的nas引路人，大家多多关注）
-
-![](https://pic.fengsutb.com/pic/2025-04-18_10-01-05.png)
 
 ## 项目分类
 
